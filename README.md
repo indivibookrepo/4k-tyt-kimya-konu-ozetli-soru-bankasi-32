@@ -1,0 +1,1 @@
+# 4k-tyt-kimya-konu-ozetli-soru-bankasi-32
